@@ -4,7 +4,6 @@
 > 安徽，男，1989年  
 > [frendkao@gmail.com](frendkao@gmail.com)  
 > (+86) 151-5595-0653
-> [Download PDF](index.pdf)  
 
 ------
 
